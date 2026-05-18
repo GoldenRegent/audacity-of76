@@ -1,4 +1,4 @@
-# 
+# Profesional Vegas Pro para PC ejecutor es el mejor Vegas Pro para PC ejecutor con soporte de plugins y cámara virtual. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
